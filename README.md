@@ -1,2 +1,1 @@
 # GardenGroove-Plant-Website
-s
